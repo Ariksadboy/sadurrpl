@@ -1,0 +1,5 @@
+NIM : 1811500046<br>
+NAMA LENGKAP : ARIK SUNATA<br>
+KELOMPOK : TI6J<br>
+<br>
+<br>
